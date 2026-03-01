@@ -1,4 +1,13 @@
-![25c9d255da46e166d92eb2dc52be36c6](https://github.com/user-attachments/assets/39613900-e9ab-49c9-b2c6-3843feb9749d)
+<div align="center">
+
+──── ୨୧ ──────── ୨୧ ──────── ୨୧ ──────── ୨୧ ──────── ୨୧ ──────── ୨୧ ──────── ୨୧ ────
+
+
+hihihi
+
+
+![41df96a302c44563f03d57ebbb28566f](https://github.com/user-attachments/assets/dbf7d809-bb8c-4d47-b8cf-3ced473f89cc)
+
 
 
 
@@ -9,8 +18,18 @@ C+H!!!!
 w2i maybe???
 
 
-![83ae8e7990d0948e378808855dd45462](https://github.com/user-attachments/assets/eb581998-95d1-4bc1-b383-fb1ab084c4f4)
 
+
+
+
+
+(^O^)
+
+
+I can't stop peeing
+
+
+<img width="256" height="256" alt="cover-1 thumb256" src="https://github.com/user-attachments/assets/3386f3e1-6836-42a2-a3fe-eca729362002" />
 
 
 
